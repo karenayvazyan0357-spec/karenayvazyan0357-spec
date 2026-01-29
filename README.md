@@ -77,9 +77,8 @@
 
 - **Email:** [karen_ayvazyan_03@mail.ru](mailto:karen_ayvazyan_03@mail.ru)
 - **Телефон:** +7 (962) 688-10-20
-- **GitHub:** [Ваш ник на GitHub] *(вставьте ссылку)*
-- **Telegram / LinkedIn:** *(при желании добавьте)*
+- **Telegram: ** @KarenAi777
 
 ---
 
-> Резюме обновлено: 18 ноября 2025 г.
+> Резюме обновлено: 29 января 2026 г.

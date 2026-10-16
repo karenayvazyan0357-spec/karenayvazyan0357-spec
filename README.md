@@ -90,6 +90,3 @@ Pet-проект на реальных данных Retail Rocket (2,76 млн �
 - **Telegram:** @KarenAi777
 - **GitHub:** [karenayvazyan0357-spec](https://github.com/karenayvazyan0357-spec)
 
----
-
-Обновлено: 16 октября 2026 г.
